@@ -8,7 +8,8 @@ Do you want them to believe in the relationship as much as you do and take the n
  I have the perfect spell for you.
 WHAT WILL HAPPEN?
 As the love or romance spell takes hold, you will become increasingly attractive to members of the opposite sex.
-You will find yourself acting more boldly around potential partners and ultimately starting one or even numerous new relationships! You'll be the happiest person in the world!
+You will find yourself acting more boldly around potential partners and ultimately starting one or even numerous new relationships! 
+You'll be the happiest person in the world!
 The marriage spell is a little different this spell works through you to break down whatever it is that's causing your partner to resist making that proposal .
 gradually they will feel more secure in the relationship until marriage seems like a logical safe choice.
 This spell takes time, it definitely can't be rushed, but it works. 
